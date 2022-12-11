@@ -2,8 +2,6 @@
 title: Sales & Marketing Stuff 3.28.22
 ---
 
-## Sales & Marketing Stuff 3.28.22
-
 - ~~Spirit animals???~~
 - I just said my fav animal is an elephant
 - Koopid/Gail stuff
